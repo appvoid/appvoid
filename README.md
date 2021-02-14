@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate with anyone who needs me
 - 📫 How to reach me nohakcoffee@gmail.com
 
-Dont forget to see my personal projects on Codepen!
+Dont forget to see my personal projects on Codepen ❤
 https://codepen.io/nohak
